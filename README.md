@@ -1,3 +1,7 @@
+🎓 Estudante de Engenharia de Software | Faculdade Ampli - 1° Semestre
+
+Apaixonado por tecnologia e inovação, estou atualmente no primeiro semestre do curso de Engenharia de Software na Faculdade Ampli. Tenho interesse em desenvolvimento de software, design de sistemas e inteligência artificial. Busco oportunidades para aplicar e expandir meus conhecimentos, participando de projetos colaborativos e desafiadores. Sempre pronto para aprender e contribuir com soluções criativas e eficientes.
+
 🌟 Entusiasta em Desenvolvimento Front End, com grande interesse em inovação e tecnologia! Estou em fase de transição profissional, focado no aprendizado autodidata em desenvolvimento Front End, empenhado em alcançar excelência técnica e oferecer soluções eficazes.
 
 💻 Atualmente, estou aprimorando minhas habilidades em HTML, CSS e JavaScript.
