@@ -12,7 +12,6 @@ Apaixonado por tecnologia e inovação, estou atualmente no primeiro semestre do
 
 🎬 Editor de Vídeo Freelance: Edição de vídeos para YouTube e Reels para Instagram utilizando Adobe Premiere Pro, além de conhecimentos em Adobe Illustrator, Photoshop e After Effects.
 
-🛒 Vendedor Ambulante: Venda de produtos congelados de fabricação caseira, responsável por carga, descarga, distribuição e entregas a domicílio.
 
 🏋️‍♂️ Atendente da Academia Select Fitness: Responsável pela abertura da academia, caixa, atendimento ao cliente, cadastro e venda de planos.
 
